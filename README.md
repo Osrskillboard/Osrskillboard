@@ -1,4 +1,5 @@
-### Hi there 👋
+
+![🦀🦀🦀 Jagex powerless to resist my $11 🦀🦀🦀](https://i.imgur.com/OuwhfY7.gif)
 
 <!--
 **Osrskillboard/Osrskillboard** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
